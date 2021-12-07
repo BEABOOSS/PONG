@@ -1,2 +1,2 @@
 # PONG
-Fun Game To waist Time KEK
+Fun Game To waiste Time KEK
